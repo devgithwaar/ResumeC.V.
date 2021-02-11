@@ -2,4 +2,4 @@
 Personal resume / Curricula Vitae of Hui-Heng Lin
 
 # See the uploaded PDF please
-# more details could be found at 
+# More information at https://www.linkedin.com/in/res000/  and  
